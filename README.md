@@ -1,0 +1,1 @@
+# karte-fashion-multipurpose-ecommerce-html-template
